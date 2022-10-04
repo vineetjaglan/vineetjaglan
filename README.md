@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vineetjaglan
-- 👀 I’m interested in 
+- 👀 I’m interested in learning new skills 
 - 🌱 I’m currently learning Medicine Course
 - 💞️ I’m looking to collaborate on different prospectives of Medicine.
 - 📫 My Email address is vineetjaglan64@gmaip.com
